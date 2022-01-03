@@ -1,2 +1,2 @@
 # AllianceComicLLC
-Comic Book art
+Real Comic Book brought in for nfts
